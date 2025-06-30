@@ -1,2 +1,2 @@
-![OM Yehoshua Hung Scroll](scrolls/scroll.png)
+![OM Yehoshua Hung Scroll](Scrolls/OM-Yehoshua-Hung_Scroll.png)
 
