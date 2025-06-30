@@ -1,6 +1,5 @@
 # 🌿 The Sixfold Mantra Path of OM YEHOSHUA HUNG
 
-![Sixfold Mantra Path Scroll](Scrolls/Sixfold-Mantra-Path_Scroll.png)
 
 > *A contemplative unfolding of mantra and breath into Presence.*
 
@@ -46,3 +45,6 @@ Let the mantra breathe itself — soft, steady, alive.
 
 > *“Each variation is a thread in the tapestry of sacred remembrance.  
 Return to the one that meets your breath today.”*
+
+
+![Sixfold Mantra Path Scroll](Sixfold-Mantra-Path_Scroll.png)
