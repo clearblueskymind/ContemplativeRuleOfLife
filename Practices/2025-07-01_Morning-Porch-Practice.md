@@ -6,6 +6,8 @@
 **Sacred Rhythm:** Movement as Prayer | Stillness as Offering
 
 ---
+A contemplative movement liturgy in the context of ME/CFS, adapted with compassion, precision, and presence.
+---
 
 ## 1. 💤 Wake-Up Threshold Mantra
 - **Mantra:** OM YEHOSHUA HUNG  
