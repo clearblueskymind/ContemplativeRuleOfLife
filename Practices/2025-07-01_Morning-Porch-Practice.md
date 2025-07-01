@@ -234,5 +234,7 @@ A contemplative movement liturgy in the context of ME/CFS, adapted with compassi
 > *“Let this scroll be a seed. A beginning. A return.”*
 ---
 
+> *“This scroll is offered in love to all who seek light within limits, peace within the body, and God in every breath.”*
+
 ## Tags:
 `#ME/CFS` `#ContemplativePractice` `#PorchPractice` `#Mantra` `#Seiza` `#YogaAdaptations` `#SpoonTheory` `#RuleOfLife`
