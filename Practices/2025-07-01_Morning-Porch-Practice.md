@@ -97,6 +97,14 @@ A contemplative movement liturgy in the context of ME/CFS, adapted with compassi
 - Just sitting in being  
 - Non-meditation, open awareness
 
+--- 
+
+## 13. 🔁 Transition Posture — Royal Seated Balance
+- After final Shikantaza
+- One foot flat on the floor, the other leg folded inward
+- Rest forearm on knee, upright and relaxed
+- Switch sides for balance
+- Bridges stillness into movement
 ---
 
 > _“This is how the day began: in silence, in breath, in return.”_
@@ -228,6 +236,28 @@ A contemplative movement liturgy in the context of ME/CFS, adapted with compassi
 - No mantra. No breath awareness. No technique.
 - Just sit. Rest in being.
 - This is the **non-practice beyond all practice.**
+
+---
+
+### 13. Transition Posture — Royal Seated Balance
+- From half-lotus, release right leg gently.
+- Keep **left heel near groin**, left knee resting on the ground.
+- Place **right foot flat on the floor**, with right knee pointing up.
+- Rest **right forearm on right knee**, sitting upright in a noble, effortless posture.
+- Breath is natural. Spine soft but tall.
+
+> *“The king sits not above, but within.”*
+
+- After a few moments, switch sides:
+   - Left foot flat, right leg folded inward, right knee to the ground
+   - Rest left arm on left knee
+   - Feel balance, integration, readiness to rise
+
+**Purpose:**  
+- Gradual transition from stillness to movement  
+- Gently re-engages core, spine, and hips  
+- Offers a sacred pause before returning to daily activity  
+- A post-contemplative **embodied re-entry ritual**
 
 ---
 
