@@ -20,13 +20,15 @@
    - Full Forward Bend (fists to floor)  
    - Standing Backbend  
    - Calf/Ankle Stretches (R + L)  
-   - Weighted Lateral Flexion Dumbbell Stretch  
-8. Forward Bend Inversion Hold  
-9. Seiza Mantra Meditation (20 min)  
-10. Seiza Back + Neck Flow  
-11. Grounding Squat Sequence  
-12. Final Seal – Shikantaza  
-13. Transition Posture – Royal Seated Balance
+   - Weighted Lateral Flexion Dumbbell Stretch
+- Mini Weighted Squats (2–3 slow, shallow reps) — no chair support  
+- Release weights, transition into Full Resting Squat  
+- Optional forward lean with palms or fists to floor  
+8. Seiza Mantra Meditation (20 min)  
+9. Seiza Back + Neck Flow  
+10. Grounding Squat Sequence  
+11. Final Seal – Shikantaza  
+12. Transition Posture – Royal Seated Balance
 
 ---
 
@@ -129,17 +131,31 @@ Exhale: lean left—open the side body.
 2 to 4 slow rounds.  
 This is gravity’s gentle prayer.”
 
+> > “Now that you’re standing steady,  
+> holding strength in both hands—begin the sacred descent.”
+
+> “Inhale: lengthen tall through the crown.  
+> Exhale: bend the knees gently—just enough to awaken the thighs.  
+> Inhale: rise again with awareness.  
+> Repeat 2 to 3 times.  
+> Let this be effort without strain, depth without collapse.”
+
+> “Then pause. Bow slightly.  
+> Let the dumbbells touch the earth.  
+> Release them.”
+
+> “Now sink into the full resting squat.  
+> Feet grounded, spine relaxed, hips open.  
+> Place palms or fists on the ground in front of you.  
+> Let the spine round. Let the hips soften.”
+
+> “This is the final bow before stillness.  
+> Nothing to lift. Nothing to hold.  
+> Just breath and gravity.”
+
 ---
 
-### 8. Forward Bend Inversion  
-> “Let the head hang.  
-> Let the spine curve.  
-> Let the floor receive your weight like a blessing.  
-> Nothing is upside down in God’s sight.”
-
----
-
-### 9. Seiza Mantra Meditation  
+### 8. Seiza Mantra Meditation  
 > “Back on the bench.  
 > OM with the inhale.  
 > HUNG with the exhale.  
@@ -149,7 +165,7 @@ This is gravity’s gentle prayer.”
 
 ---
 
-### 10. Seiza Neck Flow  
+### 9. Seiza Neck Flow  
 > “Clasp your wrist.  
 > Let the chest rise like a sunrise.  
 > Neck draws circles in the air—gentle orbits of care.  
@@ -158,7 +174,7 @@ This is gravity’s gentle prayer.”
 
 ---
 
-### 11. Grounding Squat  
+### 10. Grounding Squat  
 > “Drop low. Let the hips open.  
 > Hands near. Then hands forward.  
 > A bow. A stretch. A settling.  
@@ -167,7 +183,7 @@ This is gravity’s gentle prayer.”
 
 ---
 
-### 12. Final Seal – Shikantaza  
+### 11. Final Seal – Shikantaza  
 > “Return to half-lotus.  
 > No mantra.  
 > No breath awareness.  
@@ -178,7 +194,7 @@ This is gravity’s gentle prayer.”
 
 ---
 
-### 13. Transition Posture – Royal Seated Balance  
+### 12. Transition Posture – Royal Seated Balance  
 > “One foot flat, one knee down.  
 > Spine straight. Arm resting.  
 > You are the king, the queen, the monk, the mystic.  
