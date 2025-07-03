@@ -11,7 +11,7 @@ A reversal of Descartes’ “I think, therefore I am,” this aphorism removes 
 
 ### 📖 Related Wisdom:
 - **Scripture:** *“Ehyeh Asher Ehyeh” — I Am That I Am* (Exodus 3:14)  
-- **Philosophy:** Descartes’ *Cogito, ergo sum*  
+- **Philosophy:** Descartes’ *Cogito, ergo sum*  I think, therefore I am.
 - **Advaita Vedanta:** *Aham Brahmasmi* — I am That  
 - **Christian Mysticism:** *“Be still and know that I AM.”*  
 - **Dzogchen:** *“The nature of mind is presence.”*
