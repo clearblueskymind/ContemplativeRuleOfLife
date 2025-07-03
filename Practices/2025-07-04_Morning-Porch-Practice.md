@@ -113,7 +113,8 @@ A pause. A bow.”
 Fists to the floor. Spine curved.  
 Let the world tilt and release your thoughts.”
 
-> “Rise halfway. Then gently arch into the Standing Backbend.  
+> **Return to a standing posture.**  
+Then gently arch into the Standing Backbend.  
 Let the heart lift to heaven.  
 Breathe into the front body.”
 
