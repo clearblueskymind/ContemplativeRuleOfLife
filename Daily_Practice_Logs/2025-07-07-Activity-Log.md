@@ -64,6 +64,43 @@
 - This window now saved as daily rhythm (Yellow/Red days)
 
 ---
+---
+
+## 🍲 Afternoon & Evening Plans (To Be Updated)
+
+- 🍽️ **Lunch Preparation & Meal**  
+ • Light or keto-based, depending on energy  
+ • Recovery time afterward
+
+- 🚿 **Optional Shower**  
+ • If spoons allow, a refreshing transition into the evening
+
+---
+
+## 🌙 Evening Practice (Begin between 4:00–5:00 PM)
+
+### 🛏️ Seated Meditation (on Bed)
+- Return to mantra: **OM YEHOSHUA HUNG** or simple breath  
+- Settle attention into stillness  
+- Optional: soft lighting or candle
+
+### 🐹 Bodhi Time
+- Sit near her  
+- Feed, observe, or simply be present  
+- Let this be “being-with” time, not doing
+
+### 🥤 Keto Drink Ritual
+- Prepare **fatty fiber keto drink**  
+- Drink slowly in quiet  
+- Let it signal the body: rest is near
+
+> *“Evening is not the ending.  
+It is the folding of the breath into itself.”*
+
+---
+
+⏳ _To be continued as day unfolds..._
+---
 
 ## ✨ Reflection
 
