@@ -3,21 +3,20 @@
 *(Last updated: July 7, 2025)*
 
 ---
+
 A Rule of Life Timeline is a simple, living outline that:
 
-🌱 Shows how your daily rhythm has grown from individual practices
-
-🔁 Tracks patterns: what’s consistent, what’s seasonal, what’s evolving
-
-🧭 Gathers key milestones in your contemplative structure
-
+🌱 Shows how your daily rhythm has grown from individual practices  
+🔁 Tracks patterns: what’s consistent, what’s seasonal, what’s evolving  
+🧭 Gathers key milestones in your contemplative structure  
 📜 Offers a birds-eye view of how your monastic rhythm is emerging across time
+
 ---
 
 ## 🌱 June 30, 2025 — The Seed  
 - Began defining Red / Yellow / Green energy pacing  
 - Committed to gentle, sustainable movement  
-- First formal practice: mantra upon waking
+- First formal practice: mantra upon waking  
 
 ---
 
@@ -43,7 +42,7 @@ A Rule of Life Timeline is a simple, living outline that:
 - Clarified view: no goal, no gaining  
 - Fully integrated **GitHub as contemplative extension**  
 - Added **midday audiobook rest** as daily rhythm  
-- Committed to Rule of Life as living monastery
+- Committed to Rule of Life as living monastery  
 
 ---
 
@@ -59,16 +58,9 @@ A Rule of Life Timeline is a simple, living outline that:
 - 🍽️ Mindful meal and pacing  
 - 🛏️ 12–1 PM rest window (audiobook / nap)  
 - 🌙 Evening practice: meditation + Bodhi time + keto drink  
-- 🌌 Return to mantra before sleep
+- 🌌 Return to mantra before sleep  
 
 ---
 
 > *“Let the Rule of Life unfold—not as something written,  
 but as something remembered through repetition.”*
-
----
-
-Would you like this timeline saved as a dedicated file inside your `Rule-of-Life/` folder? We can call it:
-
-```plaintext
-Rule-of-Life/RuleOfLife-Timeline.md
