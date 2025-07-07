@@ -1,37 +1,54 @@
-# 🌿 YogaFlow Folder  
-**Adapted Movement Sequences for Gentle Strength, Energy Pacing, and Contemplative Embodiment**
+# 🌿 YogaFlow  
+**Embodied Awareness Practices for ME/CFS and the Contemplative Path**  
+**By Richard**
 
-This folder contains a growing collection of **Richard's adapted movement flows**, developed as part of a contemplative life with ME/CFS. Each sequence supports:
+This folder contains a growing collection of **adapted movement flows** and supporting reflections rooted in the contemplative path. Each practice honors slowness, breath, surrender, and the intelligence of pacing—especially for those living with **ME/CFS**.
 
-- Breath-centered awareness  
-- Gentle muscular engagement  
-- Functional strength without overexertion  
-- Sacred pacing (Red / Yellow / Green day adaptation)  
-- Integration of mantra, prayer, and embodied stillness
+These are not exercises.  
+They are sacred movements of presence.  
+The breath moves the body. The body breathes awareness.
 
 ---
 
-## 📘 Contents
+## 📂 Folder Structure
 
-Each file in this folder is a standalone movement sequence or variation, often including:
+### 🪑 ChairFlow/
+Gentle, seated (and standing-supported) yoga flows.  
+Adapted for red/yellow days and porch practice.  
+Includes: dumbbell flows, breathwork, sit-to-stand sequences.
 
-- Seated or chair-based yoga
-- Gentle dumbbell practices
-- Somatic floor movements
-- Breath-led microflows
-- PEM-aware adaptations
+### 🌙 Reflections/
+Written contemplations and orientation texts to ground your practice in non-doing, non-striving, and sacred presence.  
+Draws from:
+- Dzogchen (Namkhai Norbu)  
+- Zen (Shikantaza, Dogen)  
+- Taoist Wu-Wei  
+- Christian Mysticism  
+- Advaita Vedanta  
+
+These reflections are not meant to be read as instruction,  
+but as **companions to the breath**—quiet reminders of the view that animates the form.
 
 ---
 
 ## 🌈 Energy State Awareness
 
-All flows are categorized or tagged according to their energetic suitability:
+Practices are tagged or organized by pacing level:
 
-- 🟥 Red: Restorative, breath-only, ultra-gentle  
-- 🟡 Yellow: Seated flows, light resistance, short sequences  
-- 🟢 Green: Full sequences, dynamic stretching, optional standing flows  
+- 🟥 **Red Day** – minimal movement, breath only  
+- 🟡 **Yellow Day** – seated or gentle flow with pauses  
+- 🟢 **Green Day** – extended, integrated practice  
+
+Each sequence honors the need for deep pacing, stillness, and gentleness in the face of chronic fatigue and post-exertional vulnerability.
 
 ---
 
-> *“Yoga is not a pose. It is a return.  
-A return to the body, the breath, and the Presence that never left.”*
+## 💫 Orientation
+
+These are not fitness routines.  
+They are invitations into **stillness**, **body-presence**, and the **pathless path**.
+
+> “This is not movement toward God-consciousness.  
+It is movement as God-consciousness.  
+No arrival. No achievement.  
+Only return.”
