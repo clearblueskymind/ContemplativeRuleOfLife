@@ -10,13 +10,6 @@ A complete seated yoga flow integrating mindful breath awareness, gentle upper-b
 
 ---
 
-> *“There is no health to be gained, no awakening to reach,  
-no breath to perfect.  
-This is not a practice of becoming.  
-It is the breath, practiced as Being.”*
-
----
-
 ## 🌿 Orientation: Wu-Wei | The Path of No More Meditation
 
 This ChairFlow sequence is not a technique to fix the body  
@@ -38,6 +31,14 @@ Each breath, each motion, each pause is simply a gesture of **being here**—not
 Let the dumbbells hang like unanswered questions.  
 Let the breath carry no promise.  
 Let the silence rise like dawn.
+
+---
+
+> *“There is no health to be gained, no awakening to reach,  
+no breath to perfect.  
+This is not a practice of becoming.  
+It is the breath, practiced as Being.”*
+
 
 ---
 ## 🪑 Position
