@@ -10,15 +10,6 @@ A complete seated yoga flow integrating mindful breath awareness, gentle upper-b
 
 ---
 
-## 🪑 Position
-
-- Seated in a stable chair  
-- Spine lifted, feet grounded  
-- 5lb dumbbells resting by your sides  
-- Practice in silence or with mantra as background awareness
-
----
-
 > *“There is no health to be gained, no awakening to reach,  
 no breath to perfect.  
 This is not a practice of becoming.  
@@ -49,6 +40,13 @@ Let the breath carry no promise.
 Let the silence rise like dawn.
 
 ---
+## 🪑 Position
+
+- Seated in a stable chair  
+- Spine lifted, feet grounded  
+- 5lb dumbbells resting by your sides  
+- Practice in silence or with mantra as background awareness
+
 ---
 
 ## 🧘‍♂️ 1. Rest & Breath Awareness
