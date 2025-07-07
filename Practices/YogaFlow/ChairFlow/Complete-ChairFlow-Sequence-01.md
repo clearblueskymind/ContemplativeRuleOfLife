@@ -19,6 +19,38 @@ A complete seated yoga flow integrating mindful breath awareness, gentle upper-b
 
 ---
 
+> *“There is no health to be gained, no awakening to reach,  
+no breath to perfect.  
+This is not a practice of becoming.  
+It is the breath, practiced as Being.”*
+
+---
+
+## 🌿 Orientation: Wu-Wei | The Path of No More Meditation
+
+This ChairFlow sequence is not a technique to fix the body  
+or to attain spiritual states.  
+It is a movement offered in the spirit of **wu-wei**—**doing through non-doing**.
+
+- No grasping  
+- No goal  
+- No outcome to monitor
+
+Inspired by the **contemplative Dzogchen view of Namkhai Norbu** and the **Zen path of Shikantaza**, this is not yoga to improve—it is yoga to *dissolve into presence*.
+
+> “The postures are not tools.  
+They are windows.  
+They open. You sit inside.”
+
+Each breath, each motion, each pause is simply a gesture of **being here**—not toward anything. No success. No failure. Only return.
+
+Let the dumbbells hang like unanswered questions.  
+Let the breath carry no promise.  
+Let the silence rise like dawn.
+
+---
+---
+
 ## 🧘‍♂️ 1. Rest & Breath Awareness
 
 > “Let the dumbbells hang loosely by your sides.  
