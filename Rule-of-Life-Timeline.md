@@ -3,6 +3,16 @@
 *(Last updated: July 7, 2025)*
 
 ---
+A Rule of Life Timeline is a simple, living outline that:
+
+🌱 Shows how your daily rhythm has grown from individual practices
+
+🔁 Tracks patterns: what’s consistent, what’s seasonal, what’s evolving
+
+🧭 Gathers key milestones in your contemplative structure
+
+📜 Offers a birds-eye view of how your monastic rhythm is emerging across time
+---
 
 ## 🌱 June 30, 2025 — The Seed  
 - Began defining Red / Yellow / Green energy pacing  
